@@ -1,0 +1,2 @@
+# buatyudid
+bungabuatyudidjelek
